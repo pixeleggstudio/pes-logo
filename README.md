@@ -1,5 +1,3 @@
 # Pixel Egg Studio (Logo Draft)
 
-###### **`Draft`**
-
-Pixe
+###### **`Draft [Pixe or PIXE]`**
